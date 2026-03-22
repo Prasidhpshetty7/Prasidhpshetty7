@@ -46,8 +46,8 @@ You’ll find a mix of polished work and experimental builds across my repositor
 - **Portfolio:** https://prasidhshetty.in  
 - **GitHub:** https://github.com/Prasidhpshetty7  
 - **LinkedIn:** https://www.linkedin.com/in/prasidhpshetty/  
-- **Instagram:** https://www.instagram.com/mr__shxtty/  
-- **X (Twitter):** https://x.com/ShettyPrasidh7  
+- **Instagram:** https://www.instagram.com/prasidhpshetty/  
+- **X (Twitter):** https://x.com/prasidhpshetty  
 - **Discord:** https://discord.com/users/prasidhshetty  
 - **Telegram:** https://t.me/FINALSKULL  
 - **Email:** shettyprasidh262@gmail.com  
