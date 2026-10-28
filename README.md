@@ -49,7 +49,6 @@ You’ll find a mix of polished work and experimental builds across my repositor
 - **Instagram:** https://www.instagram.com/prasidhpshetty/  
 - **X (Twitter):** https://x.com/prasidhpshetty  
 - **Discord:** https://discord.com/users/prasidhshetty  
-- **Telegram:** https://t.me/FINALSKULL  
 - **Email:** shettyprasidh262@gmail.com  
 
 ---
